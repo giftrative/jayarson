@@ -1,1 +1,2 @@
-# jayarson
+# iPhone 12 Pro Max Price & Specifications
+iPhone 12 Pro Max Price beginning from 219,999 PKR. Apple iPhone 12 Pro Max is accessible in different variations of 6 GB RAM / 128 GB Storage, 6 GB RAM / 256 GB Storage, and 6 GB RAM / 512 GB Storage. Apple’s latest mobiles come with unique specifications and Prices in Pakistan. iPhone 12 Pro Max sent various Silver, Graphite, Gold, and Pacific Blue choices. [Click here for more](https://giftrative.com/product/apple-iphone-12-pro-max/)
